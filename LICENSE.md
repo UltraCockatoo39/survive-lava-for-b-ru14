@@ -1,4 +1,4 @@
-
+Experience survive lava for brainrots like never before with ultimate Scripts for survive lava for brainrots, the #1 Script. Includes auto-farm and
 
 
 
